@@ -82,10 +82,12 @@
 אבטחה,משחק שמירה,משחקי חילוץ וביטחון,security man,security guard game,security game   ביטויי-חיפוש שהשתמשנו.
 
 זהו את שלושת המשחקים הדומים ביותר. לגבי כל אחד מהם:
-1.Airport Security Officer game
-2.us president security chief life
-3.vip guard
-* 
+1.Airport Security Officer game <br>
+
+2.us president security chief life <br>
+
+3.vip guard <br>
+
  ![WhatsApp Image 2021-10-24 at 13 51 13](https://user-images.githubusercontent.com/57321080/138590841-0b1abdef-5122-4ef0-a9a9-3d02b159b008.jpeg) <br>
 
 ![WhatsApp Image 2021-10-24 at 13 50 30](https://user-images.githubusercontent.com/57321080/138590881-b6b7f75a-ffb2-4df3-a8df-1996b0513c82.jpeg)<br>
