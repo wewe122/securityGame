@@ -86,9 +86,13 @@
 2.us president security chief life
 3.vip guard
 * 
- ![WhatsApp Image 2021-10-24 at 13 51 13](https://user-images.githubusercontent.com/57321080/138590841-0b1abdef-5122-4ef0-a9a9-3d02b159b008.jpeg)
+ ![WhatsApp Image 2021-10-24 at 13 51 13](https://user-images.githubusercontent.com/57321080/138590841-0b1abdef-5122-4ef0-a9a9-3d02b159b008.jpeg) <br>
 
- 
+![WhatsApp Image 2021-10-24 at 13 50 30](https://user-images.githubusercontent.com/57321080/138590881-b6b7f75a-ffb2-4df3-a8df-1996b0513c82.jpeg)<br>
+
+ ![WhatsApp Image 2021-10-24 at 13 51 49](https://user-images.githubusercontent.com/57321080/138590875-6f35baaf-b68c-4568-a488-b3e03388a357.jpeg)<br>
+
+
  
  
 *המשחק שלנו הוא שונה וייחודי יותר מכל המשחקים הדומים שמצאנו.
