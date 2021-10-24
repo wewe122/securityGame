@@ -80,7 +80,7 @@
   ביטויי-חיפוש שהשתמשנו:
 אבטחה,משחק שמירה,משחקי חילוץ וביטחון,security man,security guard game,security game   
 
-זהו את שלושת המשחקים הדומים ביותר. לגבי כל אחד מהם:
+ את שלושת המשחקים הדומים ביותר :
  <br>
 
 1.Airport Security Officer game <br>
